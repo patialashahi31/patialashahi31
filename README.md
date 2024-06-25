@@ -7,7 +7,7 @@ Software Engineer + Author + Poet
 I fall for tech and you?
 ---------------------------------
 
-* ✉️  You can contact me at [tejinderpals31@gmail.com](mailto:tejinderpals31@gmail.com)
+* ✉️  You can contact me at [tejinderpals31@gmail.com](mailto:tejinderpal.singh3196@gmail.com)
 
 ### Skills
 
